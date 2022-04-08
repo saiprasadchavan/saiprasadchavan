@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @saiprasadchavan
-- 👀 I’m interested in Digital Marketing
+- 👀 I’m interested in Business Development
 - 🌱 I’m currently pursuing my Honours from Athlone Institute of Technology ...
-- 💞️ I’m looking to collaborate on Marketing Projects
+- 💞️ I’m looking to collaborate on Business Projects
 - 📫 How to reach me - saiprasadc7@gmail.com
 
 <!---
